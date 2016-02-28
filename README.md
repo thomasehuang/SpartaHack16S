@@ -1,1 +1,0 @@
-# SpartaHack16S
